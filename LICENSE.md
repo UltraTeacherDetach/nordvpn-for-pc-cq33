@@ -1,4 +1,4 @@
-# 
+# Enhance NordVPN for PC | NordVPN for Windows with NordVPN for PC | NordVPN for Windows vip Extension: server-locations & ad-blocker, the #1 extension. Includes server-locations
 
 
 
